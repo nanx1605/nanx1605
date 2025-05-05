@@ -1,16 +1,15 @@
-## Hi there 👋
+## Olá 👋
 
-<!--
-**nanx1605/nanx1605** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+_Nani_
+- Sou adolescente 🙂
+- Nova no Github 🤍
+- Aprendendo a linguagem java 💻
+- Aluna do Alura 📘
+- Católica ✝️
+- Gosto de esportes 🏐
 
-Here are some ideas to get you started:
+Entre em contato comigo pelo email: 
+mariani.machado@escola.pr.gov.br
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Ou pelo instagram:
+_nani_4329
