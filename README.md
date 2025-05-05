@@ -10,6 +10,3 @@ _Nani_
 
 Entre em contato comigo pelo email: 
 mariani.machado@escola.pr.gov.br
-
-Ou pelo instagram:
-_nani_4329
